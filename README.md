@@ -1,0 +1,1 @@
+# Auxili-ghost-atualiza-o-de-2026
